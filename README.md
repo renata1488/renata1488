@@ -1,0 +1,2 @@
+- 👋 Hi, I’m renata e estou em transição de carreira
+- estou interessada em programação e  estou participando de bootcamps e cursos 
